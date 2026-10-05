@@ -13,3 +13,10 @@
   
   <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/d96c749d-909f-4999-9c39-8051bc772a08" />
 
+          𝓑𝓪𝓼𝓲𝓬 𝓭𝓷𝓲 : 𝓡𝓪𝓬𝓲𝓼𝓶 , 𝓢𝓮𝔁𝓲𝓮𝓼𝓽 , 𝓢𝓾𝓹𝓹𝓸𝓻𝓽 𝓐𝓫𝓸𝓻𝓽𝓲𝓸𝓷 , 𝓢𝓾𝓹𝓹𝓸𝓻𝓽 𝓘.𝓒.𝓔 , 𝓗𝓸𝓶𝓸𝓹𝓱𝓸𝓫𝓲𝓬 
+     𝓘𝓯 𝔂𝓸𝓾 𝓮𝓿𝓮𝓻 𝓶𝓪𝓴𝓮 𝓶𝓮 𝓸𝓻 𝓶𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓼 𝓾𝓷𝓬𝓸𝓶𝓯𝓸𝓻𝓽𝓪𝓫𝓵𝓮 𝓘'𝓶 𝓫𝓵𝓸𝓬𝓴𝓲𝓷𝓰 𝔂𝓸𝓾 𝔀𝓲𝓽𝓱 𝓷𝓸 𝓼𝓮𝓬𝓸𝓷𝓭 𝓽𝓱𝓸𝓾𝓰𝓱𝓽 𝓲𝓼𝓽𝓰 .
+
+
+
+           𝓘 𝓛𝓞𝓥𝓔 𝓓𝓘𝓝𝓞𝓢𝓐𝓤𝓡𝓢      ^_^ !               
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/cc417867-6093-4ad1-82c0-196de042c17b" />           
