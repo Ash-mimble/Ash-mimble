@@ -19,4 +19,7 @@
 
 
            𝓘 𝓛𝓞𝓥𝓔 𝓓𝓘𝓝𝓞𝓢𝓐𝓤𝓡𝓢      ^_^ !               
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/cc417867-6093-4ad1-82c0-196de042c17b" />           
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/cc417867-6093-4ad1-82c0-196de042c17b" /> 
+
+
+    𝓢𝓸𝓶𝓮 𝓯𝓪𝓶𝓭𝓸𝓶𝓼 𝓘'𝓶 𝓲𝓷 𝓪𝓻𝓮 𝓙𝓾𝓻𝓪𝓼𝓼𝓲𝓬 𝔀𝓸𝓻𝓵𝓭 , 𝓣𝓱𝓮 𝓯𝓻𝓮𝓪𝓴 𝓬𝓲𝓻𝓬𝓾𝓼 , 𝓢𝓪𝓲𝓱𝓪𝓽𝓮 𝓼𝓽𝓪𝓽𝓲𝓸𝓷 , 𝓣𝓱𝓮 𝓴𝓲𝓭 𝓪𝓽 𝓽𝓱𝓮 𝓫𝓪𝓬𝓴 , 𝓕𝓸𝓻𝓼𝓪𝓴𝓮𝓷 , 𝓛𝓮𝓽 𝓱𝓲𝓶 𝓰𝓸 , 𝓪𝓷𝓭 𝓾𝓱 𝔀𝓪𝔂 𝓶𝓸𝓻𝓮 𝓲 𝓬𝓪𝓷'𝓽 𝓴𝓮𝓮𝓹 𝓬𝓸𝓾𝓷𝓽 .. 
