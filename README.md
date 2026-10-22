@@ -1,5 +1,20 @@
-𝓛𝓲𝓯𝓮 𝓲𝓼 𝓳𝓾𝓼𝓽 𝓼𝓸 𝓭𝓻𝓪𝓲𝓷𝓲𝓷𝓰
+Call me ash or ashley .
+C+h freely even if dni .
+Non-binary , Onmisexual 
 
+Dni :
+Racism 
+Homophobic 
+Sexiest 
+I . c . e
+Minor x Adult 
+
+
+
+
+
+ Ye im lay right now .
+@TsaritsaRightHand is a tsundere .
 
 
 
