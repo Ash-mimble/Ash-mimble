@@ -13,7 +13,10 @@ Minor x Adult
 
 
 
- Ye im lay right now .
+ Ye im lazy right now .
+
+
+ 
 @TsaritsaRightHand is a tsundere .
 
 
